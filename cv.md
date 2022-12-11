@@ -11,5 +11,5 @@ I have good softskills. I am attentive to details and great teamworker.
 * HTML (Basic)
 * CSS (Basic)
 ### English
-Intermediate(B1)
+Intermediate (B1)
 
