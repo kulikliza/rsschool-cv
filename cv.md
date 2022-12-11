@@ -1,4 +1,4 @@
-# Elizaveta Kulik
+# Elizabeth Kulik
 ## My contact info
 * ***Adress:*** gazety "Pravda" prospect, 14/2, 61
 * ***Phone:*** +375256105497
